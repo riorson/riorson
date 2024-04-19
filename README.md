@@ -1,3 +1,7 @@
 <p align="center">
-  hi
+  ☆ . . WELCOME TO MY PROFILE ! . . ☆
+</p>
+
+<p align="center">
+ermmm this is a wip ;-;
 </p>
