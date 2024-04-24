@@ -7,5 +7,8 @@ ermmm this is a wip ;-;
 </p>
 
 <p align="center">
+VOTE BOOTHILL FOR THE MOST CHRONICALLY ONLINE !!!!!!
+</p>
+<p align="center">
 <img src="https://files.catbox.moe/ixbnsj.gif" width="600" height="238" border="10"/>
 </p>
